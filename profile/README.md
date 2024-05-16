@@ -1,1 +1,1 @@
-![wallpaper-nur-slogan](https://github.com/blizzer-design/.github/assets/7686866/ee6a55ec-078b-4e7d-902b-2ade37e788ec)
+![wallpaper-nur-slogan](https://github.com/blizzer-design/.github/assets/7686866/c882e7d6-8b70-42da-89cb-2a5b77d795cf)
